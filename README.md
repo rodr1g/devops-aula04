@@ -1,4 +1,4 @@
-A fera e a bela<br>
+A bela e a Fera<br>
 Batman<br>
 O rei Leão<br>
 Exterminador do Futuro<br>
